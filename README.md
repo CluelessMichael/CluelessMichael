@@ -1,1 +1,1 @@
-I have no idea what I´m doing
+Forgive me Lord, for I do not know what I do
